@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jamesowusugithub
 - 👀 I’m interested in hello world
-- 🌱 I’m currently learning Advanced Higher Maths
+- 🌱 I’m currently learning about fortnite
 
 
 <!---
